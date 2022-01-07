@@ -1,8 +1,7 @@
 # NoteWorthy
 Orlando Kenny
 Dave
-Lexie Webel  
-Orlando Kenny
+Lexie Webel
 Humbert Torres
 Tyler Gurley
 Daimeun Praytor
